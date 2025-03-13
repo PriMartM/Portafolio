@@ -9,6 +9,6 @@
 
 ## Hecho por:
 
-###Martinez Mariana Priscila
+### Martinez Mariana Priscila
 
-### Linkedin: https://www.linkedin.com/school/aluracursos/
+### Linkedin: https://www.linkedin.com/in/mariana-priscila-martinez-/
